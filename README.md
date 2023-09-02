@@ -13,8 +13,6 @@
 
 - 📫 How to reach me **rishita231004@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/Friends/Downloads/Rishita's%20Resume%20(3).pdf](file:///C:/Users/Friends/Downloads/Rishita's%20Resume%20(3).pdf)
-
 - ⚡ Fun fact **I am Funny.**
 
 <h3 align="left">Connect with me:</h3>
